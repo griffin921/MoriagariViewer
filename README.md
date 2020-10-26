@@ -1,1 +1,1 @@
-�v���W�F�N�g: MoriagariViewer
+なんだか盛り上がりそうなアプリです
